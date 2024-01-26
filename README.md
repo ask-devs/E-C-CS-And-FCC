@@ -1,2 +1,1 @@
-# Best of Luck 🍀
-## TYBCA Studensts
+## All the best TYBCA Studensts.
